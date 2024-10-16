@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Baozxje
 - 👀 I’m interested in Web and more
 - 🌱 I’m currently learning Hutech
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on Github and Linkedln
 - 📫 How to reach me: https://www.facebook.com/baoz.2511/ 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I enjoy playing soccer, surfing the web, learning and exploring blockchain
